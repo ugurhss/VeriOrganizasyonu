@@ -1,3 +1,3 @@
 Veri-Organizasyonu Ödevi
 
-Ugur Can DOĞAN Ödev-1
+Ugur Can DOĞAN Ödev-1s
